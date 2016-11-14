@@ -1,0 +1,2 @@
+# alextheintelligentafricanamerican.github.io
+schoolings
